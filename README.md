@@ -7,7 +7,7 @@
 
 - 📫 How to reach me ? **sankowskamaja25@gmail.com**
 
-- ⚡ Excited about astronomy, and I would love to work in this field one **day**
+- ⚡ Excited about astronomy, and I would love to work in this field one day
 
 
 <h3 align="left">Languages and Tools:</h3>
